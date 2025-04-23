@@ -2,9 +2,9 @@
 
 #### <ins> Pourquoi choisir un cv sur Haruko Ichikawa ?​​</ins> :white_flower:
 
-C'est une _mangaka_ [^1] qui a crée plusieurs œuvres notamment des one-shots mais aussi une série de manga appelé **Houseki No Kuni** :gem: aussi dit _L'ère des cristaux_. Haruko Ichikawa est assez peu connue en France dans le monde des mangas. Donc travailler sur son profil pour ce devoir était obligatoire pour ma personne en tant que grande fan de ses projets artistiques. 
+C'est une ==_mangaka_== [^1] qui a crée plusieurs œuvres notamment des one-shots mais aussi une série de manga appelé **Houseki No Kuni** :gem: aussi dit _L'ère des cristaux_. Haruko Ichikawa est assez peu connue en France dans le monde des mangas. Donc travailler sur son profil pour ce devoir était obligatoire pour ma personne en tant que grande fan de ses projets artistiques. 
 
-**Houseki no Kuni** est une, si ce n'est mon œuvre préféré. Elle a influencé ma vie et ma vision artistique. Mon travail va donc alors se mélanger entre le profil assez discret de son autrice mais aussi de œuvre qui est sa plus populaire. 
+**Houseki no Kuni** est une, si ce n'est mon œuvre préféré. Elle a influencé ma vie et ma vision artistique. Mon travail va consister présenter les différents projets de l'artiste que l'artiste a fait ou bien contribué malgré le profil assez discret de celle-ci. C'est une artiste qui mérite amplement son succès et bien plus. Sa métrise que ce soit des cristaux ou bien du bouddhisme est impressionnant. Ce qui rend le lecteur (ou bien le spectateur) curieux et pousse à chercher d'avantages les théories, les significations autour d'une situation ou un personnage. 
 
 -------------------------------------------------------------
 
